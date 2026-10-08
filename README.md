@@ -5,18 +5,28 @@ Criar um segundo cérebro baseado nos conceitos de disciplina, motivação e con
 
 Fontes de texto:
 https://www.rockensina.com.br/blog/disciplina-motivacao-segredo-sucesso/
+
 https://eduvem.com/a-disciplina-supera-a-motivacao-como-transformar-seus-habitos-para-o-sucesso-diario/
+
 https://pt.linkedin.com/pulse/discipline-over-motivation-why-consistency-builds-empires-h4alf?tl=pt
 
 Fontes de vídeo:
 https://www.youtube.com/watch?v=kFbwILwFU4E
+
 https://www.youtube.com/watch?v=0wDnkoPy0cU
+
 https://www.youtube.com/watch?v=HIsFytg5tis
+
 https://www.youtube.com/watch?v=T6BYyY6WxHU
+
 https://www.youtube.com/watch?v=3Ccpz9Zlby8
+
 https://www.youtube.com/watch?v=nOyUYp1adzs
+
 https://www.youtube.com/watch?v=-fqn779a4z8
+
 https://www.youtube.com/watch?v=nY8_Wt7LuF8
+
 https://www.youtube.com/watch?v=IvA0GQ7txPI
 
 Confio nessas fontes porque após revisão, elas se mostraram com conteúdo sucinto
