@@ -1,5 +1,7 @@
 # Desafio_DIO
 
+LINK DO NOTEBOOK: https://notebook.google.com/notebook/dd8e5bc2-3a30-44ac-aa10-5500190f2de5
+
 Objetivo:
 Criar um segundo cérebro baseado nos conceitos de disciplina, motivação e consistência, a relação entre os 3 temas, suas armadilhas e como aplica-las
 
